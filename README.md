@@ -10,7 +10,7 @@
 
 ## About
 
-Hello, my name is Agátaa. I am from Prague and I am 21 years old. I think of myself as friendly, sometimes moody, but happy to help. My natural expression is like Don't talk to me please, but don't worry because it's not that I'm thinking anything bad.
+Hello, my name is Agáta. I am from Prague and I am 21 years old. I think of myself as friendly, sometimes moody, but happy to help. My natural expression is like Don't talk to me please, but don't worry because it's not that I'm thinking anything bad.
 My dream has always been to become a photographer. I got my hands on a camera for the first time when I was in the 5th grade at elementary school. Since then, the camera has been with me ever since. I have tried to take pictures of many categories in photography, but the closest to me are self-portraits. I like when I can express myself through a photo. And I also like it when it's just me and the camera at a given moment.
 What do I do in my spare time? I make people happy because I work as a courier, so I deliver food to people. I have my dog ​​at home, with whom I spend most of my time. I also like to read and watching movies and have been thinking a lot about the future lately. I'm thinking of giving up photography and keeping it as a side job. I am drawn to work at the airport, in an environment with airplanes. I like that I can be so close to people who in a few hours will be somewhere completely different and maybe fulfilling their dream.
 
