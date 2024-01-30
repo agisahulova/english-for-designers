@@ -1,4 +1,4 @@
-# First Impression
+# Agáta Sahulová, Photographer
 
 ![48f94cb5-8fef-4abc-bd47-f2dede011dea kopie](https://github.com/agisahulova/english-for-designers2/assets/148855867/f235b780-39f4-4dc1-aacd-06cb6c18efba)
 
