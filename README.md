@@ -6,6 +6,7 @@
 
 - [About](#about)
 - [Featured Projects](#featured-projects)
+- [Writing](01-one-word/)
 
 
 ## About
