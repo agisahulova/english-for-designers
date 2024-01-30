@@ -7,6 +7,7 @@
 - [About](#about)
 - [Featured Projects](#featured-projects)
 - [Writing](01-one-word/)
+- [Contact](#contact)
 
 
 ## About
@@ -60,4 +61,6 @@ This photo was taken during covid when I was locked at home and felt sad and bor
 This photo is from a time when I felt a heavy weight on my chest. That was because I had a lot of work to do and couldn't keep up. So instead of what I should have done, I took my camera and went to take pictures instead.
 
 
-<!-- And so on. -->
+# Contact
+
+Something, something.
