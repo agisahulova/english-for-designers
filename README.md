@@ -23,7 +23,7 @@ What do I do in my spare time? I make people happy because I work as a courier, 
 ## Featured Projects
 As I said before, I prefer to take self-portraits, so I will show you a few projects about self-portraits. These projects were created either for me or for the school and I am proud of them.
 
-### Project 1
+### Uncomfortable times
 
 <!-- Use a static poster image or animated GIF, but no video files. Again, keep the image width/height manageable, around 1280x x 720px (16:9 aspect ratio), or a max-width of 1280px. -->
 
@@ -31,7 +31,7 @@ I created this first project in high school when covid started. I wanted to show
 
 ![IMG_9246 kopie](https://github.com/agisahulova/english-for-designers2/assets/148855867/48e3805b-50d8-4bf3-b40c-1d01447e43f9)
 
-### Project 2
+### Tied up
 
 These photos were taken when I was in my first year here. This period was mentally challenging for me and it honestly helped me to confide in the camera. In the photos you can see me, sad and tied up. It has always been a problem for me to confide and run away from problems.
 It was also difficult for me to show these photos to the public, because I do not confide in people, but in the camera. But I managed it and I was relieved.
@@ -39,7 +39,7 @@ It was also difficult for me to show these photos to the public, because I do no
 ![IMG_9252](https://github.com/agisahulova/english-for-designers2/assets/148855867/ae768feb-d4ac-419e-872d-91d7b2d08407)
 
 
-### Project 3
+### Look at these pictures
 Here I have a couple of unrelated photos for example, but I like them.
 
 ![02_Sahulová_08 kopie](https://github.com/agisahulova/english-for-designers2/assets/148855867/3ca89ff3-0643-4e79-8ed8-cd20d709379d)
