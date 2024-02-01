@@ -21,7 +21,7 @@ My dream has always been to become a photographer. I got my hands on a camera fo
 What do I do in my spare time? I make people happy because I work as a courier, so I deliver food to people. I have my dog ​​at home, with whom I spend most of my time. I also like to read and watching movies and have been thinking a lot about the future lately. I'm thinking of giving up photography and keeping it as a side job. I am drawn to work at the airport, in an environment with airplanes. I like that I can be so close to people who in a few hours will be somewhere completely different and maybe fulfilling their dream.
 
 ## Featured Projects
-As I said before, I prefer to take self-portraits, so I will show you a few projects about self-portraits. These projects were created either for me or for the school and I am proud of them.
+I will show you a few projects about my self-portraits. Just me and camera. These projects were created either for me or for the school and I am proud of them.
 
 ### Uncomfortable times
 
