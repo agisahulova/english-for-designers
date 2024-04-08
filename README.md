@@ -1,0 +1,31 @@
+# Inner feelings
+
+
+ 
+
+
+- [Past](#past)
+- [Presence](#presence)
+- [Future](#Future)
+- [Message](#message)
+
+Hello, I'm Agi and i want you to tell you my story.
+All of us know the feeling when the head says something, but the heart says something different. We feel confused and we don't know what to do next. Should i listen to my head or my heart?
+
+## Past
+
+When I was a child, my family and I would often go on holiday. I used to fly with grandma and grandpa, too. It was a great adventure. I've always looked forward to being by the sea. There was one other thing I was really looking forward to. And that's when I walk into the airport and then the plane. I've always felt like I'm on another planet. It was an incredible experience for me. 
+Over time, I found the airport more and more appealing. I felt elated and adrenalineful when I heard the sound of airplanes. I liked the beeping at the airport when they broke the news about the flights. My parents once took me to a view point at the airport, where I saw planes landing and leaving. We were there a long time because I didn't want to go. Since then, I can't even count the number of times I've been on the view. Often when I wanted to be alone, my direction was clear. View. I once wondered what it would be like to work at an airport and be so close to everything. I have developed a strong bond to this place.
+When I was in 5th grade, I got my camera for the first time, and I forgot about the airport. I enjoyed the photo shoot very much and wanted to be a photographer. I took pictures of friends, nature, animals. I went to high school about photography and then college. I've always wanted to have my own studio. The photo shoot was fine, but I didn't feel so good about it. Even so, I kept going. In my head, I was like, I'm not sure a photo shoot is for me. The times went on and on.
+
+
+
+## Presence
+I'm in college today and my head is full of stress. I only touch the camera because I have to take pictures to school. I don't care about it that much. My thoughts about the airport came back, and suddenly it gave me more energy. I thought- what if I finish school and go work at the airport? Yes, I plan to. I want to keep the photo shoot as a hobby. I'm ready to go to the airport, but I have to do my exams first. Can I finish school? Can I handle a job interview? Of course I do! I'm motivated
+
+## Future
+What could my future hold? I hope it's the way I want it to be. My heart would always drag me to the airport and my head would tell me to give it a shot. I know the photo shoot didn't go well and the airport will be the thing. So wish me luck, now I'm waiting for an email with an interview date.
+
+
+## Message
+Listen to what your heart tells you. It's the right thing to do.
